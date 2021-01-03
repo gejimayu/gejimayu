@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hey there 👊
 
 I am a software engineer from 🇮🇩 Indonesia and currently working and living in 🇸🇬 Singapore
 
